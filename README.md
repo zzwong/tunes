@@ -1,7 +1,7 @@
 # Listening list
-
-## September 30
-- Danny Brown - Atrocity Exhibition
+## September 27
+- 21 Savage - Savage Mode
+- Danny Brown - Atrocity Exhibition 
 
 ## September 6
 - Isaiah Rashad - The Sun's Tirade
